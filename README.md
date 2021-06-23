@@ -4,7 +4,7 @@
 
 > Many were demanding for this , here it is now!
 
-# https://dsc.gg/virusfw - JOIN MY DISCORD AND SUPPORT VIRUSFW
+
 
 ## Features
 
